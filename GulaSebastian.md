@@ -1,1 +1,1 @@
-hai cu conflinctele!
+hai cu conflinctele!@!#
